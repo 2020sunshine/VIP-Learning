@@ -5,7 +5,7 @@
 ## 资源目录
 
 实际内容比目录多
-http://note.youdao.com/noteshare?id=7fd10758621338e782c6af98f48a7659
+https://note.youdao.com/ynoteshare1/index.html?id=4de9b7b9635fd93a143b02b00519ca44&type=note
 
 目录可以搜到的资源(搜索方法上面链接有详解)，有偿分享！支持试听试看，非诚勿扰！
 
